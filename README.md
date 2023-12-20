@@ -67,6 +67,6 @@ Here are some insights that I got --
 <b>Although Kohli scored 9 centuries against and in Australia but only 1 of them came in favour of India while in 5 of them India ended up loosing.
 So the number of centuries may be high in Australia they were not as much impactful as they are at home
 
-As an individual Kohli performed really well in Australia but team India did not get the expected reult</b>
+As an individual Kohli performed really well in Australia but team India did not get the expected result</b>
 
 # THANK YOU
